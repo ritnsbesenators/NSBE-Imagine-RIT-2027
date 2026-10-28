@@ -7,3 +7,4 @@ Sharona :D
 Jasmine! 
 Isaac
 Christoffer is here!
+Xavier just arrived!
